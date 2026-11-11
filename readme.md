@@ -9,4 +9,9 @@
 ### de'la perl i set for the kontiv to survive
 <img width="272" height="389" alt="image" src="https://github.com/user-attachments/assets/d5f3442d-02ec-4775-b199-29de8a9c26f0" />
 
+super ciph - from 'la pel sparrowing in space. 
+""" 
+- unmagical - unifishined sentence srts a cerrain type of nuget upl. towardz i žhant style. 
 
+' q æß " ¼ - ciph from de'la pear interacting with black knight in spacze; z denotes unkown too; haøf sentencenzes set a fake signal understand and 'parr setz a duo ' partikle(meiosis /mitosis going wrong) as growing is that. and then you "zsum agreed" but the bio'pho does a zelf moment of gifting the molekulo a extra weihhr of self importance(starting a chain towardz a set of half foundet quant(⅛ beat skip in ket; in'authenticity of bad matrix and scalars build 💛🐝)
+"""
