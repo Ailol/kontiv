@@ -60,7 +60,12 @@ qck.s'bit{
 }into(f'bit);
 
 ## The bias law is the "international law of kontiv'"
-its always hopeful, however 1 needz hardcoded forever and clear of "but what can it be used for?"
+
+<div align="center">
+  bias right now is WAY WAYYY underplayed like extreme(!!) 
+</div>
+
+bias'inferrenczse[merchantil'squarez] ≡ [[artificial eventz % affinity ' biome & bio'me]
 ```
 a'term[what is the modell capable after? ] <- forever that is
 b'§'bytez(kontiv ' sets the style)
