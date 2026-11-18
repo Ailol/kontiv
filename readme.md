@@ -7,6 +7,12 @@ mom < ≡ > dad
 ```
 where kontiv is to work within mikro ' partiklez so that inferrenz happenz from auth givenz, instead of random "a51' mr beast tour groups of "wiping registers to accept new super aliens of squid game. (no joke, its happening all the time)."
 
+#### 'bit vs byte
+```
+s'bit is almost unstoppable if presented at the right timing. skari.
+s'byte is something to molder and set a fox register in motion :) 
+```
+
 #### qck.example:
 ```
 t'byte = qt'i ≡ ai·ki ≡ ai'ti = t'er'mik[termik understandment of spektrum]
