@@ -61,11 +61,18 @@ qck.s'bit{
 
 ## The bias law is the "international law of kontiv'"
 
-<div align="center">
-  bias right now is WAY WAYYY underplayed like extreme(!!) 
-</div>
+before this one, the definition always had a 'mikro focus, like
+` "bias is the weight of choice made before the current one" `
 
-bias'inferrenczse[merchantil'squarez] ≡ [[artificial eventz % affinity ' biome & bio'me]
+#### Here is my update to what bias actually is:
+Whereas it the most complex alkorithm of statistical faktorz that yonder on capabilitez available in critical momentz. 
+
+i suggest to ingrain this bias 1'liner:
+`bias'inferrenczse[merchantil'squarez] ≡ [[artificial eventz % affinity ' biome & bio'me] `
+ - the ab'law "the artifical bias law".
+
+and also add that the single most fun affinity to test is fish and sugar. it is remarkable how zombie actually is feral.
+like feral is feroicous, they just stop caring about everything and just go FERAL. do suggest icefishing without before to have the "oh shit, thats scary." moment :) 
 ```
 a'term[what is the modell capable after? ] <- forever that is
 b'§'bytez(kontiv ' sets the style)
