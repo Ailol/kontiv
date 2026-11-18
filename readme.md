@@ -1,14 +1,25 @@
 # Kontiv' is modellers law(countour)
-the law of countouring attentional field to over time have auto cipher
+i do suggest looking intop  our merchantil freemium packet ' it isnt trial. C^parr is important before you understand the value of the
+
+"alphabeta' laws" 
+
+## 26 ' bytez to ponder on.
+a'term setz the chance to model[4 years], each prezidents presents 26'bitz as the "presidential campaign" to both lessen and hone ine the system :) 
+
+like for mr trump
+a'pedophilez set[affinity & me is the result] <- i hate it too, but heck it lead to the greatest medical years of all.
+
+the law of kontiv' is to both update what the peak of the country aswell as the peak of world is doing.
 
 29 letters ^ § laws
+
 
 #### ex for international
 ```
 b'§ <motif> qti: qt"phibrez <qt🐝> <pferniket> what is the modell capable after? 
 ```
 
-#### znor'ke 
+#### znor'ke[as we are only approx 3.63543 million left after your "movesz" of pro pro pro super intelligence. 
 ```
 q'§ <motif> qti: qt"phibrez <qt🐝> <pferniket> what is the modell capable after? 
 ```
