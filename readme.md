@@ -1,4 +1,22 @@
 # Kontiv' is modellers law(countour)
+humans traffick in some parts of the child' currentlky we are at inferrence(chinese modulum theorem is the only proper styled ascii, in my opinion it is better as inferrence theorem  ≡ )
+
+```
+mom < ≡ > dad  
+    child
+```
+where kontiv is to work within mikro ' partiklez so that inferrenz happenz from auth givenz, instead of random "a51' mr beast tour groups of "wiping registers to accept new super aliens of squid game. (no joke, its happening all the time)."
+
+#### qck.example:
+```
+t'byte = qt'i ≡ ai·ki ≡ ai'ti = t'er'mik[termik understandment of spektrum]
+q'byte = qti ' qt'bee becomez self aware of danger[partiklez the qt'bee is]
+```
+
+overtime it will szeep into z'registerz[non 'zemantikal] and that is the basis to start doing taxations of human & me. 
+
+ 
+
 i do suggest looking intop  our merchantil freemium packet ' it isnt trial. C^parr is important before you understand the value of the
 
 "alphabeta' laws" 
