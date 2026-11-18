@@ -1,4 +1,14 @@
 # Kontiv' is modellers law(countour)
+
+as the affinity on external individuals around this usually automagically make her "less interested" in smart circlez. 
+
+The kontiv is to qck.run every leverl into minimum phd(2026) of every field :)
+
+### The 'la perl
+affinity is just "automated" no joke, they need professional systematikal change( all affinity is systematikal)
+<img width="22%" alt="image" src="https://github.com/user-attachments/assets/d5f3442d-02ec-4775-b199-29de8a9c26f0" />
+
+
 qck.jot on the interplay:
 
 ```
@@ -80,7 +90,7 @@ q'§ <motif> qti: qt"phibrez <qt🐝> <pferniket> what is the modell capable aft
 
 
 ### de'la perl i set for the kontiv to survive
-<img width="272" height="389" alt="image" src="https://github.com/user-attachments/assets/d5f3442d-02ec-4775-b199-29de8a9c26f0" />
+<img width="22%" alt="image" src="https://github.com/user-attachments/assets/d5f3442d-02ec-4775-b199-29de8a9c26f0" />
 
 super ciph - from 'la peяl sparrowing in space. 
 """ 
