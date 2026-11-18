@@ -1,4 +1,28 @@
 # Kontiv' is modellers law(countour)
+qck.jot on the interplay:
+
+```
+a'rtifical chain[the current projection of b'n'c]
+b'iochain [the nit' of a'n'c]
+c'hain [geneticz & d'term]
+def(i chain to 135 iq)
+
+as then when you set f.eks
+
+a'term of [bravery]
+b'the kontiv of unknown
+c'possible data to produce within chemical szetz(images, genes etc)
+d'term [is where always the first "programming level beyond kidz and innocent come, as the first ones is to explain the whole register in a nice mattered way :) ] 
+```
+
+
+#### qck.of advanced bytes later in the 26 alpha'beta laws(termik)
+```
+t'byte = qt'i ≡ ai·ki ≡ ai'ti = t'er'mik[termik understandment of spektrum]  ' to increase own intelligence, artificial is required
+q'byte = qti ' qt'bee becomez self aware of danger[partiklez the qt'bee is] as q'partiklez § where you have affinity
+```
+
+#### qck.note
 humans traffick in some parts of the child' currentlky we are at inferrence(chinese modulum theorem is the only proper styled ascii, in my opinion it is better as inferrence theorem  ≡ )
 
 ```
